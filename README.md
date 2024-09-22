@@ -8,3 +8,4 @@ Don't work please contact my Discord - zenix.77 or https://discord.gg/zenix77mod
 by zenix.77
 
 ![image](https://github.com/user-attachments/assets/dd5913db-566d-42e1-bc1a-30f146375d94)
+![image](https://github.com/user-attachments/assets/243a96a2-9a02-45d5-969a-4a2e69e0eead)
